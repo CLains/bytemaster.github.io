@@ -29,7 +29,7 @@ and violence is unnecessary and counter productive and that there exists a free 
 solution free of all coersion if we are brave enough to seek it out.  
 
 This blog will dive deep into many philosophical discussions in pursuit of a
-logically consistant world view that provides a viable approach to secure our life,
+logically consistent world view that provides a viable approach to secure our life,
 liberty, and property today without having to beg or fight.  I will frequently
 reference the work of other great thinkers and engage in discussion with all as
 we explore the possabilities. 
